@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @c2rohan
-- 👀 I’m interested in Github YouTube.
-- 🌱 I’m currently learning school codeing. 
+- 👀 I’m interested in Github and YouTube.
+- 🌱 I’m currently learning school and codeing. 
 - 💞️ I’m looking to collaborate on GitHub,GoogleGroups,Hangouts,E-Mail.
 - 📫 How to reach me E-Mail is rohan.sodavaram@gmail.com send your e-mail in the chat so i can add you to my googlegroup!!
 
