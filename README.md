@@ -2,7 +2,7 @@
 - 👀 I’m interested in Github and YouTube.
 - 🌱 I’m currently learning school and codeing. 
 - 💞️ I’m looking to collaborate on GitHub,GoogleGroups,Hangouts,E-Mail.
-- 📫 How to reach me E-Mail is rohan.sodavaram@gmail.com send your e-mail in the chat so i can add you to my googlegroup!!
+- 📫 How to reach me E-Mail is rohan.sodavaram@gmail.com !
 
 <!---
 c2rohan/c2rohan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
